@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ()
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me Insta sloth_sloth_111 or gmail: timep978@gmail.com
-- 😄 Pronouns: him/her
+- 😄 Pronouns: him
 - ⚡ Fun fact: 
 
 <!---
